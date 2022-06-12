@@ -38,4 +38,3 @@ The story of Li Guang's life and the two great wars he participated in
 
 
 中国封建王朝的施政哲学要点在于向下兼容
-![image](https://user-images.githubusercontent.com/107312372/173212543-cb6918ad-ff74-4c83-b722-c50ad82463d6.png)
